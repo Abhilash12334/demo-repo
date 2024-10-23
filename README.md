@@ -1,3 +1,3 @@
 I am vengeance
 bat man 
- bruise 
+ bruise wayne
